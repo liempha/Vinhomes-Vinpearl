@@ -1,0 +1,2 @@
+# Vinhomes-Vinpearl
+- Biệt thự song lập 200m2 (8x25) cao 3 tầng 1 tum  - Mặt tiền đường 30m  - Mặt tiền đường nối Nguyễn Xuyễn Long Phước - Tuyến đường kết nối 2 khu công nghệ cao và khu công nghệ cao giai đoạn 2 Vĩa hè 9m*; lòng đường 18m2, 6 làn xe; dãy phân cách 3m  - Đối diện khu thương mại dịch vụ  - Liền kề tòa nhà văn phòng 45 tầng ( tòa nhà điểm nhấn của toàn khu) - Giá ~ 32 tỷ Vốn tự có 30% = ~9-10 tỷ  - Ngân hàng MB Bank hoặc Techcombank hỗ trợ ~ 20 tỷ  - Thời gian hỗ trợ lãi 18 tháng kể từ ngày giải ngân  - Chứng minh thu nhập ~ 300tr/tháng
